@@ -7,7 +7,7 @@
 
 Let's stay in touch! 
 
-[Call me](tel:9018965051)
+[Call me](9018965051)
 
 [Email me](mailto:India.ratliff@gmail.com)
 
